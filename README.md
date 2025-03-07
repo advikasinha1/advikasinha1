@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me my email advika16092005@gmail.com
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I m still learning so feel free to ask silly things i won't laugh
+- ⚡ Fun fact: I m still learning....
 - 
 
 <!---
